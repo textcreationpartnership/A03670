@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-HORACE HIS arte of Poetrie, pistles, and Satyrs Englished, and to the Earle of Ormounte By Tho. Dran
+
 1. DE SEIPSO.
 〈 in non-Latin alphabet 〉〈 in non-Latin alphabet 〉.COME..I'AY.TROVE.Aureus Ormontus fama super aethe
 1. ❧TO THE RIGHT HOnorable and verye noble Lord, Thomas Earle of Ormounte, and O•…orye, Lorde Butler, Vicounte Thurles, Lord of the libertie of Typparye, and highe Treasurer of Ireland, Tho. Drant maister of Arte, and student in Diuinitye, wisheth increase of honor, with all felicitye.
